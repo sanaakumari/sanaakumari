@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Sana Singh  
+# Hi there 👋, I'm Sana kumari
 
 ✨ Welcome to my GitHub profile!  
 
